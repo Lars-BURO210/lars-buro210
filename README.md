@@ -2,7 +2,7 @@
 - 👀 I’m interested in GitHub
 - 🌱 I’m currently learning GitHub
 - 💞️ I’m looking to collaborate on GitHub
-- 📫 How to reach me: support@buro210.nl
+- 📫 How to reach me: You don't
 - 😄 Pronouns: Motorola PQ7-Pro Max / Serial Number: 499765328
 - ⚡ Fun fact: I like GitHub
 
